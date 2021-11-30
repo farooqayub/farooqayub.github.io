@@ -1,1 +1,0 @@
-# farooqayub.github.io
